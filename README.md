@@ -1,1 +1,1 @@
-# letride-legal
+# Letride Privacy Policy
